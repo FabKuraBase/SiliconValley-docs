@@ -22,6 +22,9 @@
 2015/5/1<br>
 [安倍首相がシリコンバレーを訪問したワケ](http://toyokeizai.net/articles/-/68551)
 <hr>
+2015/4/28<br>
+[シリコンバレーのＶＣがデザイナーを登用する狙い ](http://www.nikkei.com/article/DGXKZO86200380X20C15A4X12000/)
+<hr>
 2015/4/21<br>
 [シリコンバレー駐在がムダに終わる３つの悪弊](http://www.nikkei.com/article/DGXKZO85904140Q5A420C1X12000/)
 <hr>
