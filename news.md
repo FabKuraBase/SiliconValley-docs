@@ -3,6 +3,9 @@
 2015/5/12<br>
 [車大手がシリコンバレーに集結　進むＩＴ化、人材争奪戦へ ](http://www.nikkei.com/article/DGXLZO86645450R10C15A5FFB000/)
 <hr>
+2015/5/11<br>
+[ビジネスプランを廃止した、UCバークレー校](http://itpro.nikkeibp.co.jp/atcl/column/14/476124/050700023/)
+<hr>
 2015/5/8<br>
 [シリコンバレーは大きな課題を抱えている
 ｢繁栄の孤島｣が他地域の手本になるには？](http://toyokeizai.net/articles/-/68931)
