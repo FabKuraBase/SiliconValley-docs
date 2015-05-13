@@ -11,7 +11,7 @@
 [安倍首相がシリコンバレーを訪問したワケ](http://toyokeizai.net/articles/-/68551)
 <hr>
 2015/4/21<br>
-[シリコンバレー駐在がムダに終わる３つの悪弊]()
+[シリコンバレー駐在がムダに終わる３つの悪弊](http://www.nikkei.com/article/DGXKZO85904140Q5A420C1X12000/)
 <hr>
 2015/4/18<br>
 [子持ちがシリコンバレーで働きにくいワケ](http://toyokeizai.net/articles/-/66559)
