@@ -17,7 +17,7 @@
 [【番外編】 シリコンバレーから日本の高校生への真っ直ぐなメール](http://business.nikkeibp.co.jp/article/opinion/20150501/280672/?P=1)
 <hr>
 2015/5/4<br>
-[シリコンバレー「起業の聖地」　日本人の挑戦増える]()
+[シリコンバレー「起業の聖地」　日本人の挑戦増える](http://www.nikkei.com/article/DGXLZO86414330T00C15A5TJE000/)
 <hr>
 2015/5/1<br>
 [安倍首相がシリコンバレーを訪問したワケ](http://toyokeizai.net/articles/-/68551)
