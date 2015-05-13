@@ -11,4 +11,4 @@
 [安倍首相がシリコンバレーを訪問したワケ](http://toyokeizai.net/articles/-/68551)
 <hr>
 2015/4/18<br>
-[子持ちがシリコンバレーで働きにくいワケ]()
+[子持ちがシリコンバレーで働きにくいワケ](http://toyokeizai.net/articles/-/66559)
