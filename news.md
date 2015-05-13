@@ -1,5 +1,8 @@
 # シリコンバレー動向
 <hr>
+2015/5/14<br>
+[](http://logmi.jp/57676)
+<hr>
 2015/5/12<br>
 [車大手がシリコンバレーに集結　進むＩＴ化、人材争奪戦へ ](http://www.nikkei.com/article/DGXLZO86645450R10C15A5FFB000/)
 
