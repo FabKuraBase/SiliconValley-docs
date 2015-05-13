@@ -14,7 +14,7 @@
 ｢繁栄の孤島｣が他地域の手本になるには？](http://toyokeizai.net/articles/-/68931)
 <hr>
 2015/5/7<br>
-[【番外編】 シリコンバレーから日本の高校生への真っ直ぐなメール]()
+[【番外編】 シリコンバレーから日本の高校生への真っ直ぐなメール](http://business.nikkeibp.co.jp/article/opinion/20150501/280672/?P=1)
 <hr>
 2015/5/1<br>
 [安倍首相がシリコンバレーを訪問したワケ](http://toyokeizai.net/articles/-/68551)
