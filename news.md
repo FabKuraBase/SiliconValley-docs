@@ -4,7 +4,7 @@
 [Google自動運転車開発は大詰めに、最新モデルでシリコンバレー試験走行](http://itpro.nikkeibp.co.jp/atcl/column/14/466140/052800042/)
 <hr>
 2015/6/8<br>
-[ガラパゴスはむしろ武器。日本人起業家がシリコンバレーを目指すべき理由｜Vivaldi 冨田龍起]()
+[ガラパゴスはむしろ武器。日本人起業家がシリコンバレーを目指すべき理由｜Vivaldi 冨田龍起](http://careerhack.en-japan.com/report/detail/521)
 <hr>
 2015/5/14<br>
 [孫泰蔵氏「シリコンバレーの起業家精神を世界中に」Slushムーブメントの挑戦を語る](http://logmi.jp/57676)
