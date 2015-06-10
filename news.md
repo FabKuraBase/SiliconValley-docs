@@ -10,6 +10,11 @@
 [シリコンバレーはボランティア精神で助け合う世界](http://www.nikkei.com/article/DGXKZO87552110R00C15A6X12000/)
 
 [パナソニックやコマツもシリコンバレーに注目、Draper Nexus2号ファンド組成で出資社数が増加](http://jp.techcrunch.com/2015/06/02/draper-nexus-raises-12b-yen-fund/)
+
+<hr>
+2015/5/28<br>
+[アクティビストと戦うシリコンバレー  自衛手段探るハイテク企業]()
+
 <hr>
 2015/5/14<br>
 [孫泰蔵氏「シリコンバレーの起業家精神を世界中に」Slushムーブメントの挑戦を語る](http://logmi.jp/57676)
