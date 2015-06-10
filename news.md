@@ -7,7 +7,7 @@
 [ガラパゴスはむしろ武器。日本人起業家がシリコンバレーを目指すべき理由｜Vivaldi 冨田龍起](http://careerhack.en-japan.com/report/detail/521)
 <hr>
 2015/6/2<br>
-[シリコンバレーはボランティア精神で助け合う世界]()
+[シリコンバレーはボランティア精神で助け合う世界](http://www.nikkei.com/article/DGXKZO87552110R00C15A6X12000/)
 <hr>
 2015/5/14<br>
 [孫泰蔵氏「シリコンバレーの起業家精神を世界中に」Slushムーブメントの挑戦を語る](http://logmi.jp/57676)
