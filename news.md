@@ -1,5 +1,9 @@
 # シリコンバレー動向
 <hr>
+2015/7/3
+<hr>
+[第1回：シリコンバレーは社会実験の場だった](http://itpro.nikkeibp.co.jp/atcl/column/15/061500149/070200001/?ST=system&P=1)
+<hr>
 2015/6/30
 <hr>
 [シリコンバレー流の「空気」　企業トップこそ感じて ](http://www.nikkei.com/article/DGXKZO88654970Z20C15A6X12000/)
