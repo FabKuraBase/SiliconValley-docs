@@ -6,7 +6,7 @@
 <hr>
 2015/7/1
 <hr>
-[btrax、シリコンバレーと日本をつなぐ世界最大級のピッチイベント『第8回JapanNight』の開催を決定！]()
+[btrax、シリコンバレーと日本をつなぐ世界最大級のピッチイベント『第8回JapanNight』の開催を決定！](https://www.value-press.com/pressrelease/144253)
 <hr>
 2015/6/30
 <hr>
