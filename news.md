@@ -1,5 +1,9 @@
 # シリコンバレー動向
 <hr>
+2015/6/30
+<hr>
+[シリコンバレー流の「空気」　企業トップこそ感じて ](http://www.nikkei.com/article/DGXKZO88654970Z20C15A6X12000/)
+<hr>
 2015/6/9<br>
 [Google自動運転車開発は大詰めに、最新モデルでシリコンバレー試験走行](http://itpro.nikkeibp.co.jp/atcl/column/14/466140/052800042/)
 <hr>
